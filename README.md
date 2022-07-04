@@ -1,0 +1,4 @@
+- 👋 Olá, meu nome é Vanessa 
+- 🌱  tenho interesse de aprender sobre a área de administração 
+- 💞️ tenho 14 anos 
+- 📫 meu email é: vanessa.godoi@escola.pr.gov.br
